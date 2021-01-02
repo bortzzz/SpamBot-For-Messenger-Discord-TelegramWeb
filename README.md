@@ -1,6 +1,10 @@
 # SpamBot-For-Messenger-Discord-TelegramWeb
+and u click Spam! on the app
+then make sure to click on the chat button too so it will type itt
 
-u cant spam unless you also download the 3 image and put it in the same folder....
+
+
+spam spam spam!!!
 
 
 - have fun spamming -
